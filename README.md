@@ -1,16 +1,29 @@
-## Hi there 👋
+## better known as MAG/Apri/Jason
 
-<!--
-**MAGGOTSLIVE/MAGGOTSLIVE** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+ who's that cool looking guy?
+> oh hey that's ^ me B-)
 
-Here are some ideas to get you started:
+feel free to C+H and int :-)
+🍊
+sign ata [here](https://maggotsmentality.atabook.org/)
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+## Basic info
+### DNI
+* WSS
+* Pedos, Zoos, Homophobes, Transphobes, etc.
+* Proshipers, Darkshippers
+* SHEDtwt
+* Ashle, Evbo & Lifering yume
+
+### BYI
+* non sharing Ashle (BIAST), Evbo, and Lifering yume
+* very talkative unless doing something
+* i use splatoon ponies when im in a bad mood, usually easily angered during said time, IWC
+
+### INT pls
+* Same fandom
+> Umamusume, DSMP, MC story youtubers, Dandy's World \
+> more fandoms in [straw](https://maggotsmentality.straw.page/)
+* fellow artists of said fandom <3
+
+<img width="575" height="518" alt="maggotsart3" src="https://github.com/user-attachments/assets/232ca4ce-0eca-41f4-befa-fe9c22563c70" />
