@@ -1,4 +1,5 @@
 ## better known as MAG/Apri/Jason
+> but you can also call me by my pony or Dream!
 
  who's that cool looking guy?
 > oh hey that's ^ me B-)
