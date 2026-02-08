@@ -7,25 +7,32 @@
 feel free to C+H and int :-)
 🍊
 sign ata [here](https://maggotsmentality.atabook.org/)
+<img width="752" height="512" alt="romessesunflowerfinish" src="https://github.com/user-attachments/assets/ecfc5449-c3c7-4530-9e83-f81721f54fbf" />
 
-## Basic info
-### DNI
-* WSS
-* Pedos, Zoos, Homophobes, Transphobes, etc.
-* Proshipers, Darkshippers
-* SHEDtwt
-* Ashle, Evbo & Lifering yume
+![](https://komarev.com/ghpvc/?username=MAGGOTSLIVE&base=920&label=teapots&color=fc6b03&style=plastic)
+
+ <h2> <p align="center"> Basic info </p> </h2>
+ 
+ ### DNI
+ WSS  
+ Pedos, Zoos, Homophobes, Transphobes, etc.  
+ Proshipers, Darkshippers  
+ SHEDtwt  
+ Ashle, Evbo & Lifering yume  
 
 ### BYI
-* non sharing Ashle (BIAST), Evbo, and Lifering yume
-* very talkative unless doing something
-* i use splatoon ponies when im in a bad mood, usually easily angered during said time, IWC
+non sharing Ashle (BIAST), Evbo, and Lifering yume  
+very talkative unless doing something  
+i use splatoon ponies when im in a bad mood, usually easily angered during said time, IWC  
+dark humor user !! if you need tone tags lmk !  
+it doesn't need to be a ship to sit next to me :)
 
-### INT pls
-* Same fandom
+### INT Pls
+Same fandom  
 > Umamusume, DSMP, MC story youtubers, Dandy's World \
-> more fandoms in [straw](https://maggotsmentality.straw.page/)
-* fellow artists of said fandom <3
-* Stagedduo, Rivalsduo, Goldfam, Emfbo, algalbloom
+> more fandoms in [straw](https://maggotsmentality.straw.page/) \
 
-<img width="575" height="518" alt="maggotsart3" src="https://github.com/user-attachments/assets/232ca4ce-0eca-41f4-befa-fe9c22563c70" />
+fellow artists of said fandom <3  
+Stagedduo | Rivalsduo | Goldfam | Emfbo | algalbloom  
+
+>updating profile soon!
