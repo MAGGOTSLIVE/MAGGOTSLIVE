@@ -17,7 +17,7 @@ sign ata [here](https://maggotsmentality.atabook.org/)
  WSS  
  Pedos, Zoos, Homophobes, Transphobes, etc.  
  Proshipers, Darkshippers  
- SHEDtwt  
+ Anti recovery SHEDtwt  
  Ashle, Evbo & Lifering yume  
 
 ### BYI
@@ -30,9 +30,11 @@ it doesn't need to be a ship to sit next to me :)
 ### INT Pls
 Same fandom  
 > Umamusume, DSMP, MC story youtubers, Dandy's World \
-> more fandoms in [straw](https://maggotsmentality.straw.page/) \
+> more fandoms in [straw](https://maggotsmentality.straw.page/) 
 
 fellow artists of said fandom <3  
 Stagedduo | Rivalsduo | Goldfam | Emfbo | algalbloom  
+
+<p align="center"> .⋆✴︎˚｡ 🍊 ₊˚✧ </p>
 
 >updating profile soon!
