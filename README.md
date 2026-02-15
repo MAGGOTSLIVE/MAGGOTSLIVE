@@ -25,7 +25,8 @@ non sharing Ashle (BIAST), Evbo, and Lifering yume
 very talkative unless doing something  
 i use splatoon ponies when im in a bad mood, usually easily angered during said time, IWC  
 dark humor user !! if you need tone tags lmk !  
-it doesn't need to be a ship to sit next to me :)
+it doesn't need to be a ship to sit next to me :)  
+do not be afraid to strike a convo with me!! or send me friend requests! i am the coolest living being and love to have more cool friends B-D
 
 ### INT Pls
 Same fandom  
