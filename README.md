@@ -7,7 +7,7 @@
 feel free to C+H and int :-)
 🍊
 sign ata [here](https://maggotsmentality.atabook.org/)  
-[join our DSMP discord server!](https://discord.gg/VQh5djy9P)
+[join our DSMP discord server!](https://discord.gg/FVGE9SeGPv)
 
 
 <img width="752" height="512" alt="romessesunflowerfinish" src="https://github.com/user-attachments/assets/ecfc5449-c3c7-4530-9e83-f81721f54fbf" />
