@@ -45,3 +45,6 @@ Stagedduo | Rivalsduo | Goldfam | Emfbo | algalbloom
 <p align="center"> .⋆✴︎˚｡ 🍊 ₊˚✧ </p>
 
 >updating profile soon!
+
+forever DF123
+<img width="490" height="135" alt="Screenshot 2026-03-04 231122" src="https://github.com/user-attachments/assets/2f97b078-a039-4054-bd45-c68c2f974cb9" />
