@@ -1,5 +1,5 @@
-## better known as MAG/Apri/Jason
-> but you can also call me by my pony or Dream!
+## better known as MAG/Dream/Apri/Jason
+> but you can also call me by my pony name!
 
  who's that cool looking guy?
 > oh hey that's ^ me B-)
@@ -7,8 +7,6 @@
 feel free to C+H and int :-)
 🍊
 sign ata [here](https://maggotsmentality.atabook.org/)  
-
-NEW DSMP discord server soon
 
 
 <img width="752" height="512" alt="romessesunflowerfinish" src="https://github.com/user-attachments/assets/ecfc5449-c3c7-4530-9e83-f81721f54fbf" />
@@ -22,12 +20,13 @@ NEW DSMP discord server soon
  Pedos, Zoos, Homophobes, Transphobes, etc.  
  Proshipers, Darkshippers  
  Anti recovery SHEDtwt  
- Ashle, Evbo & Lifering yume  
+ Ashle, Dream, Evbo & Lifering yume  
 
 ### BYI
 you see me have sleeping animation? im asleep irl then!  
 i do not block, but if i see you're in my dni or i'm in your dni i will ignore you unless it's important.  
-non sharing Ashle (BIAST), Evbo, and Lifering yume  
+non sharing Ashle (BIAST), Evbo, and Lifering yume 
+mirror sharing Dream yume
 very talkative unless doing something  
 i use splatoon ponies when im in a bad mood, usually easily angered during said time, IWC  
 dark humor user !! if you need tone tags lmk !  
@@ -43,8 +42,6 @@ fellow artists of said fandom <3
 Stagedduo | Rivalsduo | Goldfam | Emfbo | algalbloom  
 
 <p align="center"> .⋆✴︎˚｡ 🍊 ₊˚✧ </p>
-
->updating profile soon!
 
 forever DF123
 <img width="490" height="135" alt="Screenshot 2026-03-04 231122" src="https://github.com/user-attachments/assets/2f97b078-a039-4054-bd45-c68c2f974cb9" />
