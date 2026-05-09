@@ -35,7 +35,7 @@ do not be afraid to strike a convo with me!! or send me friend requests! i am th
 ### INT Pls
 Same fandom  
 > Umamusume, DSMP, MC story youtubers, Dandy's World \
-> more fandoms in [straw](https://maggotsmentality.straw.page/) 
+> more fandoms in [straw](https://maggotslive.straw.page/) 
 
 fellow artists of said fandom <3  
 Stagedduo | Rivalsduo | Goldfam | Emfbo | algalbloom  
