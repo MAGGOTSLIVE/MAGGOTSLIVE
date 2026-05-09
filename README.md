@@ -25,8 +25,7 @@ sign ata [here](https://maggotsmentality.atabook.org/)
 ### BYI
 you see me have sleeping animation? im asleep irl then!  
 i do not block, but if i see you're in my dni or i'm in your dni i will ignore you unless it's important.  
-non sharing Ashle (BIAST), Evbo, and Lifering yume 
-mirror sharing Dream yume
+non sharing Dream, Ashle (BIAST), Evbo, and Lifering yume  
 very talkative unless doing something  
 i use splatoon ponies when im in a bad mood, usually easily angered during said time, IWC  
 dark humor user !! if you need tone tags lmk !  
