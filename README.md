@@ -1,3 +1,4 @@
+
 ## better known as MAG/Dream/Apri/Jason
 > but you can also call me by my pony name!
 
@@ -6,7 +7,7 @@
 
 feel free to C+H and int :-)
 🍊
-sign ata [here](https://maggotsmentality.atabook.org/)  
+sign my ata [here](https://maggotsmentality.atabook.org/)  
 
 
 <img width="752" height="512" alt="romessesunflowerfinish" src="https://github.com/user-attachments/assets/ecfc5449-c3c7-4530-9e83-f81721f54fbf" />
@@ -39,7 +40,7 @@ Same fandom
 
 fellow artists of said fandom <3  
 Stagedduo | Rivalsduo | Goldfam | Emfbo | algalbloom  
-
+<img width="740" height="400" alt="walk" src="https://github.com/user-attachments/assets/42049721-3b9e-4350-bfcd-2be5879ef7f9" />
 <p align="center"> .⋆✴︎˚｡ 🍊 ₊˚✧ </p>
 
 forever DF123
