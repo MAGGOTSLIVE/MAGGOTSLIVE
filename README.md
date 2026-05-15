@@ -40,8 +40,8 @@ Same fandom
 > more fandoms in [straw](https://maggotslive.straw.page/) 
 
 fellow artists of said fandom <3  
-Stagedduo | Rivalsduo | Goldfam | PLATONIC
-Emfbo | algalbloom  | ROMANTIC SHIPS
+Platonic Stagedduo | Rivalsduo | Goldfam |  
+Romantic Emfbo | algalbloom  |  
 <img width="740" height="400" alt="walk" src="https://github.com/user-attachments/assets/42049721-3b9e-4350-bfcd-2be5879ef7f9" />
 <p align="center"> .⋆✴︎˚｡ 🍊 ₊˚✧ </p>
 
