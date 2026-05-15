@@ -25,7 +25,7 @@ sign my ata [here](https://maggotsmentality.atabook.org/)
 
 ### BYI
 you see me have sleeping animation? im asleep irl then!  
-i am NWSS and NSSS
+i am NWSS and NSSS  
 i do not block, but if i see you're in my dni or i'm in your dni i will ignore you unless it's important.  
 non sharing Dream, Ashle (BIAST), Evbo, and Lifering yume  
 very talkative unless doing something  
